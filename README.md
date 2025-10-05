@@ -3,6 +3,8 @@
 **Author of ideas:** You (Ghani)\
 **Scribe:** ChatGPT
 
+https://www.youtube.com/watch?v=bdHYymXVME8
+
 ---
 
 ## 0) Why this document exists
